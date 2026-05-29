@@ -1,1 +1,1 @@
-supreme funicular 
+supreme funicular zamn
